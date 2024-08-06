@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me DISCORD!!!11 (my user is defneee._.)
 - 😄 Pronouns: she/they. NEVER.EVER.USE he/him
-- ⚡ Fun fact: im stupid!
+- ⚡ Fun fact: i suck at coding..the best thing i've ever done was printing hello world-
 
 <!---
 TheFluffyK1tty/TheFluffyK1tty is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
